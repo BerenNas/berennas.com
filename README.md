@@ -1,0 +1,2 @@
+# berennas.com
+kişisel websitem
